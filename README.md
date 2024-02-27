@@ -16,4 +16,4 @@ Still having trouble realizing your pack and looking for help or just want more 
 
 ## License
 
-Feel free to use this template without credit for all your PopTracker packs!
+<a href="https://www.freepik.com/free-vector/old-paper-parchment-scroll-ancient-papyrus_39709559.htm#query=scroll&position=1&from_view=keyword&track=sph&uuid=67a93510-4efb-44dd-98b8-6159837dff2c">Image by upklyak</a> on Freepik
